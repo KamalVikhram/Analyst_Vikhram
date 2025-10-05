@@ -20,7 +20,7 @@ Before diving into data, I worked as a 3D Artist, building high-poly photorealis
 🎯 Current Mission
 To grow into a high-impact Data Analyst, blending analytical rigor with creative design thinking, and building solutions that make data-driven decisions clearer, faster, and more effective.
 
-🌐 Let’s Connect
+🌐 Let’s Connect and plan something incredible and impactful.
 
 🔗 LinkedIn - www.linkedin.com/in/kamal-vikhram-223925267
 📧 Reach me: kamalvikhram@gmail.com
